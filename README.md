@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hirmukarpanen
+- 👋 Hi, I’m @Hirmukarpanen aka Sebastian
 - 👀 I’m interested in: Cultism
 - 🌱 I’m currently learning: Mind control
 - 💞️ I’m looking to collaborate on: Terror of the masses
